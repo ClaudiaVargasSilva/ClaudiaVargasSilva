@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there 👋, I'm Claudia Vargas ⚡, Nice meeting you!!
+📫 How to reach me: 
+https://www.linkedin.com/in/claudiavargassilva/
 
 <!--
 **ClaudiaVargasSilva/ClaudiaVargasSilva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
