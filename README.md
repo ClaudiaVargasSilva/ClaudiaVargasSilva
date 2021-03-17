@@ -1,4 +1,4 @@
-### Hi there 👋  I'm Claudia Vargas ⚡, Nice meeting you!!
+### Hi there  👋   I'm Claudia Vargas  ⚡ , Nice meeting you!!
 - 📫  How to reach me: 
 https://www.linkedin.com/in/claudiavargassilva/
 
